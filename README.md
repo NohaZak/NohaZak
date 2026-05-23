@@ -50,7 +50,7 @@ Open to roles, paid client work, and interesting conversations. Reach out via [L
 
 ## Beyond the screen
 
-When not building: horseback riding (aiming competitive), bookbinding old paper into something new, and reading more nonfiction than fiction.
+When not building: horseback riding (aiming competitive), coffee, and reading more nonfiction than fiction.
 
 ---
 
